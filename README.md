@@ -1,2 +1,2 @@
 # latihan01
-latihan01
+aku suka renjunnnnnnnnn woi
